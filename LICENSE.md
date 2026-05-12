@@ -1,4 +1,4 @@
-#  
+#  Get the ultimate Ulysses for macOS script with instant Ulysses for macOS Script | cloud backup + goal tracking. Featuring cloud backup and goal tracking, it's the best choice for
 
 
 
